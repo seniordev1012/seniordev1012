@@ -1,1 +1,1 @@
-👋👋👋 I'm a **software engineer** with 6 years experience. 
+👋👋👋 I'm a **senior developer** with 6 years experience. 
